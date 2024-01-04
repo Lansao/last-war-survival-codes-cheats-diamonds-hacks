@@ -1,2 +1,5 @@
-# last-war-survival-codes-cheats-diamonds-hacks
-Last War Survival codes and cheats 2000 diamonds and gold hacks
+# Last War Survival codes and cheats 2000 diamonds and gold hacks
+
+Last War Survival cheats 2000 diamonds and gold hacks - Most of the profit you earn from obtaining a new unit card comes from activities and combat pass missions. This means that building your army for the long term requires you to complete various tasks required by the game. Usually, this means understanding the origins of the three factions of the United States, Germany, and the Soviet Union, as these tasks often require you to try to collaborate with the units of each faction. Is your policy "they can't kill me if they die!"? Then find some cannons and tank destroyers so they can't get close. Do you want to keep enemies away from control points in the early stages of the game? Get some TI light vehicles and some mortar teams (or if you want to hold on early, you can get a large half track) to scare away enemies and keep them away from early covers. Last War Survival code - PALJ012UOA
+
+[try now](https://www.pexels.com/@last-war-survival-888129273/)
